@@ -13,8 +13,8 @@
 
 - 🔭 I completed 100 days of Python! 
 - 🌱 I’m currently studying for the AWS Cloud Pracitioner Exam!
-- 🤔 I'm a studying for a Masters in Cybersecurity!
+- 🤔 I'm studying for a Masters in Cybersecurity!
 - 📫 How to reach me: YouTube Channel NikkTheAnalyst
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I learned German by singing nursey rhymes
+- ⚡ Fun fact: I am huge Lady Gaga fan! #littlemonster
 
